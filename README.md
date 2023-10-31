@@ -1,4 +1,4 @@
-- Meu nome é maria eduarda 
+- Meu nome é Maria Eduarda 
 
 - Estou fazendo curso de inglês
 
